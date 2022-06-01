@@ -1,2 +1,12 @@
-# About Me
-My name is Astafyev Dmitriy. I am 25 years old Digital-marketing specialist.
+# Astafyev Dmitriy, 25
+telegram: 89826129328
+**********************************
+## Job
+Работаю Интернет-маркетологом в телекоммуникационной компании К-телеком в Екатеринбурге. Рассматриваю переход в IT-сферу
+
+## Education
+Бакалавр "Инноватики
+
+
+
+
